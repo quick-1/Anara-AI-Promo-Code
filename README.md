@@ -79,4 +79,4 @@ Simply visit [Anara's AI website](https://www.unriddle.ai/?ref=dealspotr), choos
 
 > **Get Started Now – Claim Your 80% OFF!**
 
-*(Disclaimer: This offer is valid while supplies last. Terms and conditions apply.)*
+*(Disclaimer: This offer is valid while supplies last. Terms and conditions apply.)* 
