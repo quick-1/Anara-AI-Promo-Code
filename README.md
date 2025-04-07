@@ -8,7 +8,7 @@ In today's fast-paced digital world, artificial intelligence (AI) is transformin
 Get instant access to your 80% discount using either method below:
 
 ### Method 1: Direct Discount Link
-👉 [Click here to automatically apply your 80% discount](https://www.unriddle.ai/?ref=dealspotr&coupon=ANARA80)
+👉 [Click here to automatically apply your 80% discount](https://anara.com/?ref=dealspotr)
 
 ### Method 2: Manual Code Entry
 1. Visit [Anara's AI website](https://www.unriddle.ai/?ref=dealspotr)
@@ -46,7 +46,7 @@ For a limited time, you can get **80% off** on Anara's AI subscription plans. Si
 ### How to Redeem Anara's AI Promo Code:
 1. Visit the official [Anara's AI website](https://www.unriddle.ai/?ref=dealspotr)
 2. Select your preferred subscription plan
-3. Enter the **Coupon Code: `ANARA80`** at checkout
+3. Enter the **Coupon Code: ``** at checkout
 4. Enjoy an **instant 80% discount**!
 
 > **Claim Your Discount Now!** 
